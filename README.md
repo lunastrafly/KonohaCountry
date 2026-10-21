@@ -1,2 +1,1 @@
-# KonohaCountry
-Bencana Makin Parah, Hidup Makin Susah, Apa Kerja Pemerintah?
+Mana 19 JT Lapangan Pekerjaan yang dijanjikan?
